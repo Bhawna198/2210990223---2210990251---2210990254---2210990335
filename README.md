@@ -8,5 +8,5 @@ Deepanshu Aggarwal (2210990254)
 
 Type - Research Paper
 
-Current Status - Submitted the Paper at Review Stage
+Current Status - Submitted the Paper (At Initial Checking Stage)
 
